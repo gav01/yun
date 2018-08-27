@@ -2,7 +2,7 @@
 
 <hr><a name=XX>
 <h1 align="center"><b>余文生律师：须让他们清楚迫害法轮功有罪</b></h1>
-<div align="center"><img src="img/Yu-wensheng.jpg" width=600></div>
+<div align="center"><img src="img/Yu-wensheng-600.jpg" width=600></div>
 <div align="center">余文生律师近照（大纪元）</div><p>
 【大纪元2017年01月09日讯】编者按：余文生，北京人，49岁，2002年正式执业做民商律师。
 
