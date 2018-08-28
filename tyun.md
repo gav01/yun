@@ -1,4 +1,4 @@
-<IMG SRC="img/XXXXXXX.jpg" width=880></p>
+
 <a name=top>
 <h1 align="center"><a href=#1>1. 中国法律界的脊梁</a><br></h1>
 <a name=1>
